@@ -25,9 +25,9 @@ I'm open to collaborating on:
 
 ## 📫 Reach Me
 You can contact me through:
-- 📧 Email: giraseyogesh@example.com
-- 🔗 LinkedIn: [Yogesh Girase](https://www.linkedin.com/in/yogesh-girase/)
-- 🐦 Twitter: [@GiraseYogesh](https://twitter.com/GiraseYogesh)
+- 📧 Email: ygirase733@gmail.com
+- 🔗 LinkedIn: www.linkedin.com/in/yogesh-udesing-girase
+- 🐦 Twitter: 
 
 ## 😄 Pronouns
 - He/Him
